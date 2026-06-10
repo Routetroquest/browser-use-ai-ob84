@@ -1,4 +1,4 @@
-# 
+# Atualizado Browser Use ferramentas. Com assistente de voz e pipelines de dados — otimizado para máximo desempenho e eficiência.
 
 
 
